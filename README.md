@@ -6,7 +6,7 @@
 
 - 这段话让我想到一本书 ——《[*24/7晚期资本主义与睡眠的终结*](https://book.douban.com/subject/26544961/)》。
 
-* 纪录片《 [*Citizenfour*](https://pan.baidu.com/s/1axNkp5NdVzWvviqhExbZsg 密码:xjum)》
+* 纪录片《 [*Citizenfour*](https://pan.baidu.com/s/1axNkp5NdVzWvviqhExbZsg)》
 
 <video src="/Users/mengyuan/Desktop/Citizenfour.2014.mp4"></video>
 
