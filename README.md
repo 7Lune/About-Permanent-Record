@@ -1,4 +1,4 @@
-# after-PERMANENT-Record## 写在前面
+## 写在前面
 
 * 读着不停想起Julian Assange，不知道他此刻真实处境如何。阿桑奇的第一场实质性引渡听证会将于2月24日开始。去年十一月《[*法庭上的阿桑奇*](https://mp.weixin.qq.com/s/7hfC19lvkjp_IbDQPlJ7bA)》，到前不久，[*<u>一封来自世界各地117位医生和心理学家的信，要求有关政府结束对阿桑奇的心理折磨</u>*](https://www.thepaper.cn/newsDetail_forward_6040142)。是不是就要被摧毁了。
 
